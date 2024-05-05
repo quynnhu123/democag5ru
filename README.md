@@ -1,1 +1,0 @@
-# democag5ru
